@@ -7,7 +7,7 @@
 **Data**: Maig de 2025  
 
 ---
-![animation](https://github.com/user-attachments/assets/a0a5deea-1acb-49b8-acbb-21edfae125d8)
+![animation](https://github.com/user-attachments/assets/2ed5a412-a5c2-4985-a294-22cba0a627a3)
 
 ## Introducció
 
